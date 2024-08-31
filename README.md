@@ -1,1 +1,1 @@
-https://mufidbrown.github.io/portofilio/
+https://mufidbrown.github.io/portofolio/
